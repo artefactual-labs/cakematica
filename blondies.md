@@ -16,7 +16,7 @@ adaptable](https://smittenkitchen.com/2006/11/blondies/)
 
 ## Method
 
-1. Heat oven to 350°F. Butter an 8×8-inch baking pan, or line the bottom and two
+1. Heat oven to 350°F (around 175°C). Butter an 8×8-inch (20cm x 20cm) baking pan, or line the bottom and two
    sides of one with parchment paper, buttering the exposed parts.
 2. Melt butter in a small saucepan; I like to keep cooking it, stirring
    occasionally, until it becomes toasty and browned at the bottom and has an
