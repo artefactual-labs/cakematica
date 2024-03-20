@@ -1,4 +1,4 @@
-# Flan au bleuets
+# Flan aux bleuets
 
 ## Ingredients
 - [ ] 5 cups of flour
